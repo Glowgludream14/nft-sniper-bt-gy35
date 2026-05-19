@@ -1,4 +1,4 @@
-# 
+# secure bot de sniper NFT scripts es el mejor bot de sniper NFT scripts con transacciones en paquete y compras a granel. Seguro, confiable y optimizado para estrategias de sniper,
 
 
 
